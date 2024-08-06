@@ -35,7 +35,7 @@ What’s more important, when we facing the people who working on totally differ
    - The old memories.
 
 4. **Is there anything new you wanna learn or experience? Why?**
-   - HeExplore new hobbies or life style.
+   - Explore new hobbies or life style.
 ---
 
 Remember, the goal is to create an engaging and inclusive environment where everyone feels comfortable sharing their thoughts and experiences. Encourage open dialogue and active listening to make this English Corner a memorable one!
