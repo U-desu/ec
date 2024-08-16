@@ -1,6 +1,6 @@
 # English Corner
 ## Save The Memos
-### Indexes:
+### Index:
 #### 1. [The First Step](https://u-desu.github.io/udesu.github.io/2024-07-27-English-Corner.html)
 Host: Jason
 Time: 07/27/2024
