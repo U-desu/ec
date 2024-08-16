@@ -10,4 +10,7 @@ Time: 08/03/2024
 #### 3. [Pressure and Sportsmanship](https://u-desu.github.io/udesu.github.io/2024-08-10-English-Corner.html)
 Host: Jason
 Time: 08/10/2024
+#### 3. [Gender Relations](https://u-desu.github.io/udesu.github.io/2024-08-17-English-Corner.html)
+Host: Suy
+Time: 08/17/2024
 
