@@ -1,5 +1,7 @@
 # 2024-08-24-English-Corner
+
 ## Topic: The Special Place in Your Heart
+
 ### Host: zhi zhi
 
 ## Topic Overview
@@ -11,28 +13,31 @@ Whether you're single, dating, or married, your insights and experiences are val
 ## Self-introduction Part
 
 ### Intro Yourself
+
 Kick off by introducing yourself. Share anything about yourself as long as you feel comfortable.
 
 ### Share a Recent Interesting/Happy or Anxious/Unhappy Incident
+
 Let's get personal! Tell us about something exciting or joyful that happened to you recently. Alternatively, if you're comfortable, share a moment that made you feel anxious or unhappy. It's all about connection and understanding each other better.
 
 ## Discussion Part
 
 1. **Think of a place that holds a special place in your heart.**
-    - It could be anywhere - a travel destination, your hometown, or a relative's house.
-    - It's the place that comes to mind when you see the question in your mind
+   - It could be anywhere - a travel destination, your hometown, or a relative's house.
+   - It's the place that comes to mind when you see the question in your mind
 
 2. **What's your earliest or most vivid memory associated with this place? Can you share a specific moment or experience?**
-    - Try to recall the sights, sounds, smells, or emotions you experienced.
-    - Don't worry if the memory isn't perfectly clear; share what stands out to you.
+   - Try to recall the sights, sounds, smells, or emotions you experienced.
+   - Don't worry if the memory isn't perfectly clear; share what stands out to you.
 
 3. **If you could return to this place, what would you like to do or see that you missed the first time? Or, if you've been back, how was the experience different?**
-    - Consider something you missed last time that you'd love to see, or an experience you'd want to relive in a different way.
-    - Reflect on how your perspective might change now that you've already been there.
+   - Consider something you missed last time that you'd love to see, or an experience you'd want to relive in a different way.
+   - Reflect on how your perspective might change now that you've already been there.
 
 ### Here’s a list of relevant adjectives that can use when discussing their special places, memories, and experiences:
 
 #### Describing Places:
+
 - **Breathtaking** (e.g., breathtaking scenery)
 - **Picturesque** (e.g., picturesque village)
 - **Tranquil** (e.g., tranquil beach)
@@ -53,6 +58,7 @@ Let's get personal! Tell us about something exciting or joyful that happened to 
 - **Cosmopolitan** (e.g., cosmopolitan city)
 
 #### Describing Memories/Experiences:
+
 - **Unforgettable** (e.g., unforgettable moment)
 - **Nostalgic** (e.g., nostalgic memory)
 - **Joyful** (e.g., joyful experience)
@@ -73,6 +79,7 @@ Let's get personal! Tell us about something exciting or joyful that happened to 
 - **Awe-inspiring** (e.g., awe-inspiring view)
 
 #### Describing Emotional Impact:
+
 - **Uplifting** (e.g., uplifting experience)
 - **Inspiring** (e.g., inspiring landscape)
 - **Grounding** (e.g., grounding moment)
