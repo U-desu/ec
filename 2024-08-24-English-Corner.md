@@ -49,17 +49,7 @@ Here’s a list of relevant adjectives that can use when discussing their specia
 - **Majestic** (e.g., majestic mountains)
 - **Serene** (e.g., serene countryside)
 - **Charming** (e.g., charming town)
-- **Enchanting** (e.g., enchanting forest)
-- **Bustling** (e.g., bustling market)
-- **Historic** (e.g., historic landmarks)
-- **Rustic** (e.g., rustic cabin)
-- **Idyllic** (e.g., idyllic setting)
-- **Exotic** (e.g., exotic destination)
-- **Scenic** (e.g., scenic route)
-- **Lush** (e.g., lush gardens)
-- **Mystical** (e.g., mystical atmosphere)
-- **Remote** (e.g., remote village)
-- **Cosmopolitan** (e.g., cosmopolitan city)
+- etc
 
 #### Describing Memories/Experiences:
 - **Unforgettable** (e.g., unforgettable moment)
@@ -69,17 +59,7 @@ Here’s a list of relevant adjectives that can use when discussing their specia
 - **Bittersweet** (e.g., bittersweet farewell)
 - **Memorable** (e.g., memorable event)
 - **Poignant** (e.g., poignant memory)
-- **Adventurous** (e.g., adventurous journey)
-- **Magical** (e.g., magical experience)
-- **Reflective** (e.g., reflective mood)
-- **Transformative** (e.g., transformative trip)
-- **Peaceful** (e.g., peaceful day)
-- **Invigorating** (e.g., invigorating hike)
-- **Mysterious** (e.g., mysterious encounter)
-- **Thrilling** (e.g., thrilling adventure)
-- **Serendipitous** (e.g., serendipitous discovery)
-- **Whimsical** (e.g., whimsical place)
-- **Awe-inspiring** (e.g., awe-inspiring view)
+- etc
 
 #### Describing Emotional Impact:
 - **Uplifting** (e.g., uplifting experience)
@@ -88,11 +68,6 @@ Here’s a list of relevant adjectives that can use when discussing their specia
 - **Comforting** (e.g., comforting surroundings)
 - **Rejuvenating** (e.g., rejuvenating trip)
 - **Empowering** (e.g., empowering experience)
-- **Profound** (e.g., profound connection)
-- **Reassuring** (e.g., reassuring atmosphere)
-- **Enchanting** (e.g., enchanting experience)
-- **Soulful** (e.g., soulful connection)
-- **Humble** (e.g., humble surroundings)
-- **Revelatory** (e.g., revelatory journey)
-- **Introspective** (e.g., introspective time)
+- etc
+
 
