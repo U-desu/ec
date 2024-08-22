@@ -4,7 +4,7 @@
 
 ## Topic Overview
 
-Hey gus, welcome to our English Corner~
+Hey guys, welcome to our English Corner~
 
 This week, we're exploring "The Special Place in Your Heart." We all have places that hold unique significance for us, and today we invite you to share yours.
 
