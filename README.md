@@ -19,8 +19,11 @@ Time: 08/24/2024
 #### 6. Outdoor Event: Dongling Mountain Hiking !!
 Host: Suy
 Time: 08/31/2024
-#### 7. [Things that drain your energy or make you feel accomplished](https://u-desu.github.io/udesu.github.io/2024-09-07-English-Corner.html)
-Host: Jason
+#### 7. [Recalling the subtle Mid-Autumn Festival](https://u-desu.github.io/udesu.github.io/2024-09-07-English-Corner.html)
+Host: Secret
 Time: 09/07/2024
+#### 8. [Things that drain your energy or make you feel accomplished](https://u-desu.github.io/udesu.github.io/2024-09-14-English-Corner.html)
+Host: Jason
+Time: 09/14/2024
 
 
