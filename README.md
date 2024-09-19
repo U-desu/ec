@@ -25,5 +25,8 @@ Time: 09/07/2024
 #### 8. [Things that drain your energy or make you feel accomplished](https://u-desu.github.io/udesu.github.io/2024-xx-xx-English-Corner.html)
 Host: Jason
 Time: 
+#### 9. [How do You Live The Best of Your Life?](https://u-desu.github.io/udesu.github.io/2024-09-21-English-Corner.html)
+Host: Ivan
+Time: 09/21/2024
 
 
