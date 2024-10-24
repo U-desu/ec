@@ -22,11 +22,13 @@ Time: 08/31/2024
 #### 7. [Recalling the subtle Mid-Autumn Festival](https://u-desu.github.io/udesu.github.io/2024-09-07-English-Corner.html)
 Host: Secret
 Time: 09/07/2024
-#### 8. [Things that drain your energy or make you feel accomplished](https://u-desu.github.io/udesu.github.io/2024-xx-xx-English-Corner.html)
-Host: Jason
+#### 8. [Things that drain your energy or make you feel accomplished(PASS)]
+Host: 
 Time: 
 #### 9. [How do You Live The Best of Your Life?](https://u-desu.github.io/udesu.github.io/2024-09-21-English-Corner.html)
 Host: Ivan
 Time: 09/21/2024
-
+#### 10. [How do You Live The Best of Your Life?](https://u-desu.github.io/udesu.github.io/2024-10-26-English-Corner.html)
+Host: jason
+Time: 10/24/2024
 
