@@ -28,7 +28,7 @@ Time:
 #### 9. [How do You Live The Best of Your Life?](https://u-desu.github.io/udesu.github.io/2024-09-21-English-Corner.html)
 Host: Ivan
 Time: 09/21/2024
-#### 10. [How do You Live The Best of Your Life?](https://u-desu.github.io/udesu.github.io/2024-10-26-English-Corner.html)
+#### 10. [Outdoor Adventures: Your Favorite Activities and Experiences](https://u-desu.github.io/udesu.github.io/2024-10-26-English-Corner.html)
 Host: jason
 Time: 10/24/2024
 
