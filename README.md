@@ -31,4 +31,8 @@ Time: 09/21/2024
 #### 10. [Outdoor Adventures: Your Favorite Activities and Experiences](https://u-desu.github.io/udesu.github.io/2024-10-26-English-Corner.html)
 Host: jason
 Time: 10/24/2024
+#### 11. [The Phenomenon of "Energy Dissipation" in Teams](https://u-desu.github.io/udesu.github.io/2024-11-02-English-Corner.html)
+Host: jason
+Time: 11/02/2024
+
 
