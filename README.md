@@ -34,5 +34,8 @@ Time: 10/24/2024
 #### 11. [The Phenomenon of "Energy Dissipation" in Teams](https://u-desu.github.io/udesu.github.io/2024-11-03-English-Corner.html)
 Host: jason
 Time: 11/03/2024
+#### 12. [Singles' Day (11/11) is coming, are you still single?](https://u-desu.github.io/udesu.github.io/2024-11-10-English-Corner.html)
+Host: jason
+Time: 11/10/2024
 
 
