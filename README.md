@@ -37,5 +37,8 @@ Time: 11/03/2024
 #### 12. [Singles' Day (11/11) is coming, are you still single?](https://u-desu.github.io/udesu.github.io/2024-11-10-English-Corner.html)
 Host: jason
 Time: 11/10/2024
+#### 13. [Balancing Individuality and Shared Identity in Relationships?](https://u-desu.github.io/udesu.github.io/2024-11-17-English-Corner.html)
+Host: jason
+Time: 11/17/2024
 
 
