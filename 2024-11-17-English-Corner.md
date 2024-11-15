@@ -27,8 +27,8 @@ Maintaining individuality is vital because it allows each person to grow and pur
 
 ##### Discussion Part
 
-1. **How do you define individuality in a relationship? How important is it for each person to maintain their own sense of identity while being part of a couple or group?**
-   - （您如何定义恋爱关系中的个性？作为团体的一员，每个人保持自己的身份感有多重要？）
+1. **How do you define individuality in various relationships? How important is it for each person to maintain their own sense of identity while being part of a couple or group?**
+   - （您如何定义各种关系中的个性？作为团体的一员，每个人保持自己的身份感有多重要？）
 2. **Have you ever felt that your personal interests or projects were influenced by someone else's identity or social role? How did you handle the situation?**
    - （您是否曾感到您的个人兴趣或项目受到他人身份或社会角色的影响？您是如何处理这种情况的？）
 3. **In your opinion, how can two people in a relationship support each other's individual pursuits without feeling threatened or overshadowed?**
