@@ -40,7 +40,7 @@ Time: 11/10/2024
 #### 13. [Balancing Individuality and Shared Identity in Relationships?](https://u-desu.github.io/udesu.github.io/2024-11-17-English-Corner.html)
 Host: jason
 Time: 11/17/2024
-#### 14 [How everyone can tap into their talents and potential?](https://u-desu.github.io/udesu.github.io/2024-11-23-English-Corner.html)
+#### 14. [How everyone can tap into their talents and potential?](https://u-desu.github.io/udesu.github.io/2024-11-23-English-Corner.html)
 Host: Saki
 Time: 11/23/2024
 
