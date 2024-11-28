@@ -43,4 +43,7 @@ Time: 11/17/2024
 #### 14. [How everyone can tap into their talents and potential?](https://u-desu.github.io/udesu.github.io/2024-11-23-English-Corner.html)
 Host: Saki
 Time: 11/23/2024
+#### 15. [cHI gua](https://u-desu.github.io/udesu.github.io/2024-12-01-English-Corner.html)
+Host: Saki
+Time: 12/01/2024
 
