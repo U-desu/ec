@@ -31,23 +31,23 @@ Why do we feel this need to watch others' drama, and how does this behavior play
 
 1. **Why do you think people have the instinct to "eat melon" or watch others' drama?**
 
-   （你认为人们为什么会有 “吃瓜 ”或观看他人戏剧的本能？）
+（你认为人们为什么会有 “吃瓜 ”或观看他人戏剧的本能？）
 
 2. **Have you ever caught yourself "eating melon" on social media? How does it feel?**
 
-   （你有没有在社交媒体上 “吃瓜 ”的经历？感觉如何？）
+（你有没有在社交媒体上 “吃瓜 ”的经历？感觉如何？）
 
 3. **What impact do you think this "eating melon" behavior has on relationships and society?**
 
-   （你认为这种 “吃瓜 ”行为对人际关系和社会有什么影响？）
+（你认为这种 “吃瓜 ”行为对人际关系和社会有什么影响？）
 
 4. **Is there a difference between “eating melon” in real life (observing others’ personal issues) and online (following gossip on social media)?**
 
-​   （现实生活中的 “吃瓜 ”行为（观察他人的个人问题）和网络上的 “吃瓜 ”行为（关注社交媒体上的八卦新闻）有区别吗？）
+​（现实生活中的 “吃瓜 ”行为（观察他人的个人问题）和网络上的 “吃瓜 ”行为（关注社交媒体上的八卦新闻）有区别吗？）
 
 5. **Do you think it’s possible to break the habit of “eating melon” or are we simply wired to be curious about others?**
 
-​	 （你认为有可能改掉 “吃瓜 ”的习惯吗？）
+（你认为有可能改掉 “吃瓜 ”的习惯吗？）
 
 
 
