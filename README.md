@@ -44,6 +44,6 @@ Time: 11/17/2024
 Host: Saki
 Time: 11/23/2024
 #### 15. [CHI GUA](https://u-desu.github.io/udesu.github.io/2024-12-01-English-Corner.html)
-Host: Saki
+Host: Jason
 Time: 12/01/2024
 
