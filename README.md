@@ -46,7 +46,10 @@ Time: 11/23/2024
 #### 15. [CHI GUA](https://u-desu.github.io/udesu.github.io/2024-12-01-English-Corner.html)
 Host: Jason
 Time: 12/01/2024
-#### 15. [Concentration](https://u-desu.github.io/udesu.github.io/2024-12-08-English-Corner.html)
+#### 16. [Concentration](https://u-desu.github.io/udesu.github.io/2024-12-08-English-Corner.html)
 Host: Charlie
 Time: 12/08/2024
+#### 17. [The Past Time](https://u-desu.github.io/udesu.github.io/2024-12-15-English-Corner.html)
+Host: Jason
+Time: 12/15/2024
 
