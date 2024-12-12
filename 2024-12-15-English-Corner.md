@@ -7,7 +7,7 @@
 ---
 
 ##### Topic Introduction
-The past years have been a period of remarkable changes and challenges both in China and across the world. From 2022 to 2024, we have witnessed significant global events, such as the COVID-19 pandemic and its recovery phase, advancements in artificial intelligence, and efforts to address climate change. In China, rapid technological progress and initiatives like rural revitalization and green development have shaped our lives profoundly.
+The past years have been a period of remarkable changes and challenges both in China and across the world. From 2019 to 2024, we have witnessed significant global events, such as the COVID-19 pandemic and its recovery phase, advancements in artificial intelligence, and efforts to address climate change. In China, rapid technological progress and initiatives like rural revitalization and green development have shaped our lives profoundly.
 
 On a personal level, these years may have brought changes to your career, studies, or relationships. Perhaps you've learned new skills, faced unexpected obstacles, or achieved important milestones. Reflecting on this period helps us appreciate our growth and better understand how we've adapted to a changing world.
 
