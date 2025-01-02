@@ -52,4 +52,9 @@ Time: 12/08/2024
 #### 17. [The Past Time](https://u-desu.github.io/udesu.github.io/2024-12-15-English-Corner.html)
 Host: Jason
 Time: 12/15/2024
-
+#### 18. End Of The Year
+Host: Jason
+Time: 12/29/2024
+#### 19. Begin Of The Year
+Host: Jason
+Time: 01/05/2025
